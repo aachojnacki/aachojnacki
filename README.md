@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aachojnacki
+- 👀 I’m interested in iOS development, yoyoing, retro video games and music
+- 🌱 I’m currently learning to DJ
+- 💞️ I’m looking to collaborate on a project that involves both music and iOS development ;)
+- 📫 aachojnacki@gmail.com
