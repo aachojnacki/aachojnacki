@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @aachojnacki
-- 👀 I’m interested in software development
+- 👀 I’m driven by art and culture - especially music, product design, fashion and logic
 - 🌱 I’m currently learning to AI
 - 📫 aachojnacki@gmail.com
